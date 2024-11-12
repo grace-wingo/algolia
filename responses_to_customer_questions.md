@@ -1,0 +1,1 @@
+{google_doc}https://docs.google.com/document/d/e/2PACX-1vSe1sV1gNDWxOmwtuxMQR1N4tVz_jGR509g5W__RFStfXZrIpTmbVuoWqKVPjZKS6ot8RN9-hDOjlxT/pub
